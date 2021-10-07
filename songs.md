@@ -102,4 +102,5 @@
 - [How Bizarre](https://open.spotify.com/track/46q5BtHso0ECuTKeq70ZhW?si=1553ca64c6474342) by OMC
 - [No Roots](https://open.spotify.com/track/3D5wnLaeVlCCIPzQOOAirA?si=71ff4a0d414a49a3) by Alice Merton
 - [Somebody's Watching Me - Chorus Version](https://open.spotify.com/track/39DTqHKbw01LUjuHcq90WT?si=5925d93d0c2b4ea2) by Mr. Confuse, John Winston Berta
+-[Somebody's Watching Me - Chorus Version](https://open.spotify.com/playlist/70JGeLOPQMYiFX47QqTOj0?si=72eHUC8fRaGpovDubMdRJg&dl_branch=1&nd=1) by Shawn Mendes.Tainy
 ## **Don't add songs here at the end or at the beginning. Add them anywhere at the middle**
