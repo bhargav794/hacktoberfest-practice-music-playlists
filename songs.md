@@ -64,6 +64,9 @@
 - [Hunnybee](https://open.spotify.com/track/3DPFmwFtV5ElQaTniLOdgk?si=52029551e3424b95) by Unknown Mortal Orchestra
 - [Stairway To Heaven](https://open.spotify.com/track/12wlYeErSUNGg1B5d64077?si=90e4f328fd004097) by Led Zeppelin
 - [Believer(feat.lil wayne)](https://open.spotify.com/track/2sU9EjevkrU9OkPZudvFNN?si=abab62b456044a61) by Imagine Dragons, lil wayne
+- [Girls Go Wild](https://open.spotify.com/track/5AOqxn4l8BHO0or40XxCuh?si=b5f09cb84e834601) by LP
+- [Lost on You](https://open.spotify.com/track/2LIh4uzqq9cXMPzzmcToHl?si=1f6f59036b934245) by LP
+- [Shaken](https://open.spotify.com/track/33Vpz0V1ytEaRQuIb1LqGv?si=e4fb3174ed2a436e) by LP
 - [Let Me Love You](https://open.spotify.com/track/0lYBSQXN6rCTvUZvg9S0lU?si=b2be41804fc6477b) by DJ Snake and Justin Bieber
 - [Your Young Voice](https://open.spotify.com/track/0htCIJB0AHQISL5ygjgBgm?si=f9c00502d3874106) by Jonny Muir
 - [STAY](https://open.spotify.com/track/4kux0P5UfguojB4h0lQnsj?autoplay=true) by Justin Bieber, The Kid LAROI
