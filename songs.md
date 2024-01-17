@@ -212,6 +212,7 @@
 -   [Knock Knock](https://open.spotify.com/track/6cthJIumjsMpJBeDJ2w6Dn?si=c9b6138323f8409d) by Scattle
 -   [Disco Yes](https://open.spotify.com/track/61Ivix5DTnDPVjp1dgLyov?si=2d342887949d4694) by Tom Misch, Poppy Ajudha
 -   [My Type](https://open.spotify.com/track/2DFi8rwHcVkTTgu7PULhtI?si=77ce2e30f2f44f12) by Saint Motel
+-   [Secrets](https://open.spotify.com/track/3DX4Y0egvc0slLcLl31h2p) by The Weeknd
 -   [Without Me](https://open.spotify.com/track/7lQ8MOhq6IN2w8EYcFNSUk?si=fe5a9f9962804ef2) by Eminem
 -   [Edge Of The Night](https://open.spotify.com/track/1IWIqSlleSAzNQeKSpe4IJ?si=bcb987bfcb804a3e) by Sheppard
 -   [NAPAL BAJI](https://open.spotify.com/track/3A5djNQe8IW4XPWQaplZO7?si=35d344c4818c416a) by PSY
